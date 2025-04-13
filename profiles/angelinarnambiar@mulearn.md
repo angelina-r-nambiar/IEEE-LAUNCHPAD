@@ -2,12 +2,12 @@
 
 ### About Me
 
-> I am a person who is very compassionate towards art and literature along with being a tech geek.I love exploring new domains and possibilities of technology and my proffesional course supports me to do the same.
+I am a person who is very compassionate towards art and literature along with being a tech geek.I love exploring new domains and possibilities of technology and my proffesional course supports me to do the same.
 
-> Being an engineering aspirant has always been my passion and I feel fortunate to have been able to get my desired branch, electronics and communication, that has further improved my confidence and will power and has encouraged me to do more.
+ Being an engineering aspirant has always been my passion and I feel fortunate to have been able to get my desired branch, electronics and communication, that has further improved my confidence and will power and has encouraged me to do more.
 
-> I also hold deep interst in music and dance and i have always been inclined to activites associated with oration. I do find joy in wrting essays, poetry and learn new languages in my free time.
-> 
+I also hold deep interst in music and dance and i have always been inclined to activites associated with oration. I do find joy in wrting essays, poetry and learn new languages in my free time.
+
 
 #### Leadership and Influence:
 
